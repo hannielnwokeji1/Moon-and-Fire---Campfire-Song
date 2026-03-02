@@ -1,0 +1,14 @@
+There's a special place in the dark
+Where the moon and fire meet
+How can the two create a spark?
+See the sight so sweet
+Make it seem so free...
+So sing with me now,
+The mooooon and fiire,
+Light up the view so nice
+Join us and see
+How we all sing so free
+Just with the light of the moon (and fire)
+We hope you can sing with us soon 
+So we could voice together like a choir
+With the mooooon and fiire
